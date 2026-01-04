@@ -1,3 +1,11 @@
-SCRIPT IS DOWN RIGHT NOW, I AM FIXING IT + UPDATING UI. PLEASE CHECK BACK TMR.
+Hello Everyone, Script is being Updated and will be back tomorrow. Please check back here then.
 
-LOADSTRING - (WILL BE BACK WHEN SCRIPT IS UP)
+
+Status: DOWN / UPDATING
+Loadstring - (Back when its Updated)
+
+
+# More below 
+
+Youtube - https://www.youtube.com/@Fallueh
+Altgen - (Posting here Soon)

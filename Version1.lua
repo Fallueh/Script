@@ -17,3 +17,7 @@ Loadstring - (Back when its Updated)
 
 Youtube - https://www.youtube.com/@Fallueh
 Altgen - (Posting here Soon)
+
+
+
+# SCRIPT AND PERSONAL UPDATES FROM ME WILL ONLY BE HERE FROM NOW ON.
